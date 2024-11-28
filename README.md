@@ -1,7 +1,7 @@
-## Hi there 👋
+## Hi, it's me ✨[Alondra](https://x.com/Hibari_JSH)✨
 
+🎓
 <!--
-**Hibari7801/Hibari7801** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
